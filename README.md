@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Juanes51015
-- 👀 I’m interested in aastronomy
+- 👀 I’m interested in astronomy
 - 🌱 I’m currently learning school?
 - 💞️ I’m looking to collaborate nothing
 - 📫 Do not  to reach me 
